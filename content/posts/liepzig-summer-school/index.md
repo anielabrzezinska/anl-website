@@ -12,4 +12,4 @@ In June, Kornelia and Zosia had the opportunity to take part in the [https://imp
 
 The school also included poster sessions, where they presented a poster on their own research. In addition, the girls had the chance to exchange experiences with other participants during networking events, where they met many PhD students from the International Max Planck Research School who answered all their pressing questions about pursuing a doctorate abroad.
 
-![Liepzig 3](lepzig3.jpeg)
+![Liepzig 3](lepzig3.JPG)
