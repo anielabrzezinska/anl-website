@@ -1,5 +1,5 @@
 +++
-title = 'Neural mechanisms of predictive processing - an OpenScope collaboration'
+title = 'Kornelia and Zosia Attend the 2nd IMPRS CoNI Summer School in Leipzig'
 date = 2026-07-01T12:39:48+02:00
 draft = false
 +++
